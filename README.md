@@ -1,1 +1,2 @@
-# InductioProgram
+# Induction
+Program
