@@ -71,12 +71,62 @@ The *Student Induction Program 2025* marks the beginning of our academic journey
 * 🎤 Felt inspired by the journeys and wisdom shared by alumni and speakers.
 * 🔍 Discovered opportunities beyond classrooms — clubs, societies, and career-building activities.
 
-### ✨ Glorious TakeawayS
+### ✨ Glorious Takeaways
 
 * Started building meaningful connections that will shape my college experience.
 * Realized how much the college offers beyond textbooks — from mentorship to innovation.
 * Stories shared by alumni and leaders left a deep impact on my mindset.
 * I'm eager to explore clubs, activities, and start working toward career goals early.
+
+ ## DAY 2 HIGHLIGHTS
+
+### ⏰ 9:30 AM – English Proficiency Test  
+📘 We kicked off the day by putting our language skills to the test through an **English Proficiency Assessment**. It helped us evaluate our communication abilities — a key skill for future engineers!
+
+---
+
+## ⏰ 10:30 AM – Mathematics Proficiency Test  
+📐 Next up was the **Math Proficiency Test**, sharpening our logical thinking and problem-solving mindset for the academic journey ahead.
+
+---
+
+## 🧃 11:30 AM – 1:00 PM – Refresh & Recharge  
+🍽️ Students enjoyed a **well-deserved break** — time to relax, eat, and connect with new friends!
+
+---
+
+## 🎤 1:00 PM – Inspiring Talk by Buddy4Study  
+🎓 We were joined by **India’s leading scholarship platform – [Buddy4Study](https://www.buddy4study.com/)**.  
+
+💬 The session was led by **Mr. Manshish Kumar** and **Mr. Manoj Kumar**, who introduced us to:
+- Their mission of supporting **students & entrepreneurs** in need.
+- The **[Satya Scholarship Program 2025](https://www.buddy4study.com/page/satya-scholarship-program)**.
+- A **step-by-step guide** to applying for scholarships.
+
+💡 Their advice was simple: *Don’t miss the chance to fuel your dreams with the right financial support!*
+
+---
+
+## 🧠 2:00 PM – Expert Session on Food & Wellness  
+🥗 The day wrapped up with a **powerful lecture** by **Dr. Arashdeep Singh** on the topic:  
+**“Food: A Pivotal Role in Student’s Overall Wellness”**
+
+### Key Takeaways:
+- 🍎 Healthy eating is essential to enjoy and sustain student life.
+- ❌ Common food myths were busted with science.
+- ✅ Practical tips were shared on choosing what’s best for *your* body.
+
+🧑‍⚕️ The session was eye-opening and deeply relevant to our daily lives.
+
+---
+
+## ✍️ My Reflections
+
+> “Today was full of knowledge, inspiration, and growth.  
+> I discovered new opportunities, learned practical wellness tips, and felt more connected to my journey as a student.”  
+
+
+
 
 
 
