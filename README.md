@@ -123,7 +123,36 @@ The *Student Induction Program 2025* marks the beginning of our academic journey
 ## ✍️ My Reflections
 
 > “Today was full of knowledge, inspiration, and growth.  
-> I discovered new opportunities, learned practical wellness tips, and felt more connected to my journey as a student.”  
+> I discovered new opportunities, learned practical wellness tips, and felt more connected to my journey as a student.”
+
+ ## DAY 3 HIGHLIGHTS ✨
+ 
+ ###  🕣 9:00 AM - 11:00 AM
+
+ * Today we intereacted with a great personality *Dr. Jaswinder singh 'Jaswins'*.
+ * He is very among social media plaforms. he have lakhs of followers on social media and today i experienced his live presence.
+ * he tought us about many life lessons. he teached us about nature, how nature is related to sciene and math
+ * he realised us about the presence of god. overall, his lecture was awesome and very informative.
+ * <img width="4096" height="3072" alt="image" src="https://github.com/user-attachments/assets/5d3420df-322e-4206-b10e-777c5d0e881c" />
+
+   ###  🕣 11:00 AM - 01:00 PM
+
+   * Today we have expert lecture by *Dr. Priya Darshani Madam* on *Universal Human Values*
+   > *Madam spoke to us about our true goals in life—why we study, what we truly seek, and what makes life meaningful. <br>
+   > *She emphasized that our first priority should be understanding each other—only then can we truly connect and empathize with others. <br>
+   > *Our second priority should be our relationships—with family, friends, and those around us. Without strong relationships, happiness is incomplete. <br>
+   > *Our third priority should be physical facilities—like money, cars, and houses. These are important, but they should never come before human 
+    connection. <br>
+   > *Her words helped me reflect deeply and understand what truly matters in life. <br>
+   
+
+ 
+
+ 
+
+ 
+
+  
 
 
 
