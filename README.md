@@ -80,7 +80,7 @@ The *Student Induction Program 2025* marks the beginning of our academic journey
 
  ## DAY 2 HIGHLIGHTS
 
-### ⏰ 9:30 AM – English Proficiency Test  
+## ⏰ 9:30 AM – English Proficiency Test  
 📘 We kicked off the day by putting our language skills to the test through an **English Proficiency Assessment**. It helped us evaluate our communication abilities — a key skill for future engineers!
 
 ---
@@ -144,6 +144,65 @@ The *Student Induction Program 2025* marks the beginning of our academic journey
    > *Our third priority should be physical facilities—like money, cars, and houses. These are important, but they should never come before human 
     connection. <br>
    > *Her words helped me reflect deeply and understand what truly matters in life. <br>
+
+   ## ✍️ My Reflections
+
+> Day 3 was truly inspiring. We learned valuable lessons about life, nature, relationships, and inner happiness. The sessions helped us understand that true success is not just about money or achievements, but about living with values, understanding others, and staying connected to nature and humanity.
+
+## DAY 4 HIGHLIGHTS ✨ 
+
+### 9:30 AM - 10:30 AM - Chemistry Lecture
+
+Our 1ST lecture was conducted by Prof Rajiv Kaur. They were very polite and they guided us very well. They teached us about basics of chemistry. we introduce ourself to mam.
+
+### 🕣 9:30 AM – 10:30 AM - P2P Lecture by Our Senior
+
+Today, we attended a **P2P (Peer-to-Peer) session** conducted by a **3rd-year senior**.
+The focus of the lecture was on the **basics of C++ programming**.
+
+* We were introduced to the **fundamentals of C++**.
+* Learned how to **write correct syntax** and spot **common coding errors**.
+* Explored **problem-solving techniques** using C++ step by step.
+
+The session was very helpful in strengthening our foundational knowledge of programming.
+
+### 🕧 12:30 PM – 2:30 PM
+
+### 🧠 Expert Lecture by Dr. Priya Darshani – Universal Human Values (Part 2)
+
+In this powerful session, Dr. Priya Darshani continued her insightful discussion on **Universal Human Values**, focusing on the deeper meaning of human aspirations.
+
+🔍 **Core Insights from the Session:**
+
+* **True happiness and prosperity** go beyond physical comfort—they require **right understanding and nurturing relationships**.
+* A human being is a blend of **Self and Body**:
+
+  * The *Self* seeks peace, harmony, and clarity.
+  * The *Body* needs physical things like food, shelter, and rest.
+* When **imagination is guided by natural acceptance**, it brings inner harmony. But when driven by external influences or momentary pleasure, it leads to confusion and dissatisfaction.
+* **Right understanding** helps in resolving personal conflicts, building meaningful connections, and achieving sustainable well-being.
+* Living in harmony across **Self, Family, Society, and Nature** is the true path toward a fulfilled and balanced life.
+
+---
+
+### 🕝 2:30 PM – 3:30 PM
+
+### 🎵 *Interactive Session by the Causmic Club*
+
+This session brought a refreshing change of pace, blending **creativity and practical learning**:
+
+* The team introduced the **Causmic Club**, highlighting its goals and past achievements.
+* A **musical performance** set an energetic and joyful tone for the gathering.
+* We also received **useful tips on choosing the right laptop**, especially for students.
+* The session ended with **interactive performances**, including **poetry, singing**, and other creative expressions by fellow students.
+
+### ✍️ **My Reflections**
+
+"Day 4 offered a perfect blend of thoughtful learning, emotional growth, and creative joy. From understanding our inner selves to enjoying artistic talents—it was a fulfilling experience that touched both mind and heart."
+
+
+
+
    
 
  
