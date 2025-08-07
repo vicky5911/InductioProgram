@@ -202,7 +202,356 @@ This session brought a refreshing change of pace, blending **creativity and prac
 
 ## DAY 5 HIGHLIGHTS ✨ 
 
-### 🕣 10:30 AM – 11:30 AM89
+### 🕣 9:30 AM – 10:30 - ENGLISH LECTURE 
+
+Today we attented our first lecture of English the lecture was interactive. Sir, gave us a task that we have to describe ourselves and also gave us a task to write a letter to friend explaining him/her about our first day of induction. Overall, lecture was joyful. 
+
+### 🕣 10:30 AM – 11:30 AM - MATHS LECTURE
+
+Our next lecture was of Maths which eas conducted by prof. Rajvir Kaur.
+
+* Mam asked us us some basic questions related to our +2 syllabus of maths.
+* We answered mam questions confidiently. I was analysing myself that how much i remember my previous syllabus. 
+
+### 🕣 11:30 AM – 12:30 AM - BEEE LECTURE
+
+BEEE Lecture by Prof. Ranvir Kaur (EE) 
+
+* The session began with student introductions.
+* We explored the BEEE syllabus and its core topics.
+
+ ### ✍️ **My Reflections**
+
+ "Day 5 was amazing mixture of learning, understanding and joy.
+
+## Day 6 Highlights ✨
+
+###  🕣 9:30 AM - 10:30 AM - BEEE LECTURE 
+
+BEEE Lecture by Prof. Ranvir Kaur (EE)
+
+She did general talk with us. she explained us about activities which are organised by GNDEC. Then she explained us some definations of our first chapter and we noted that definations in our notebook.
+
+### 🕣 10:30 AM – 11:30 AM - P2P LECTURE
+
+* We learned the basics of c++ coding language. 
+* We also explored procedures to solve specific problems using C++.
+
+## 🕧 12:30 PM – 2:00 PM  
+
+### 🎤 Motivational Address by S. Gurcharan Singh Grewal (Secretary, SGPC)
+
+Today’s session featured an incredibly inspiring speech by **S. Gurcharan Singh Grewal**, who shared his powerful life journey with us.  
+He opened up about his early dreams of becoming an engineer at GNDEC but how life eventually led him down a different path — into politics.  
+Despite the change, his passion for education and his commitment to supporting underprivileged students has remained strong.
+
+His words were filled with motivation as he encouraged us to dream big and work hard.  
+He reminded us how lucky we are to be studying at GNDEC and urged us to rise, not just academically, but also as compassionate and responsible citizens of society.  
+His message to *"rise in the sky"* truly struck a chord with everyone present.  
+It was a speech that left us energized and deeply reflective.
+
+## 🕑 2:00 PM – 4:00 PM  
+
+### 📘 Informative Session by Dr. Lakhvir Singh Khana on CML
+
+The post-lunch session was led by **Dr. Lakhvir Singh Khana**, who introduced us to the **Center for Multi-Faceted Learning (CML)**.  
+He explained how CML serves as a platform for students interested in technical growth, skill development, and overall personality enhancement.  
+Whether it's communication skills, technical help, or professional guidance — CML is there to support students at every step.
+
+He also talked about excellent learning opportunities through national-level programs like **SWAYAM** and **NPTEL**,  
+where students can learn directly from top IIT faculty and even earn certifications that are valuable during job placements.  
+Dr. Khana strongly encouraged those with a technical inclination to engage with CML and make the most of these valuable resources.
+
+### ✍️ **My Reflections**
+
+> Today’s sessions were both inspiring and informative. I felt truly motivated by S. Gurcharan Singh Grewal’s words and learned about new opportunities for personal and technical growth through CML. It was a day of valuable lessons and renewed determination.
+
+
+
+   
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
