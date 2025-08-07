@@ -198,7 +198,11 @@ This session brought a refreshing change of pace, blending **creativity and prac
 
 ### ✍️ **My Reflections**
 
-"Day 4 offered a perfect blend of thoughtful learning, emotional growth, and creative joy. From understanding our inner selves to enjoying artistic talents—it was a fulfilling experience that touched both mind and heart."
+"Day 4 offered a perfect blend of thoughtful learning, emotional growth, and creative joy. From understanding our inner selves to enjoying artistic talents—it was a fulfilling experience that touched both mind and heart." 
+
+## DAY 5 HIGHLIGHTS ✨ 
+
+### 🕣 10:30 AM – 11:30 AM89
 
 
 
