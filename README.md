@@ -266,6 +266,40 @@ Dr. Khana strongly encouraged those with a technical inclination to engage with 
 
 > Today’s sessions were both inspiring and informative. I felt truly motivated by S. Gurcharan Singh Grewal’s words and learned about new opportunities for personal and technical growth through CML. It was a day of valuable lessons and renewed determination.
 
+## Day 7 Highlights ✨
+
+###  🕣 9:30 AM - 10:30 AM
+
+*Dr. Parminder Singh*(Dean-Student welfare) adressed us with his golden words. 
+
+* He introduced us about the campus and all facilities which are provided in college.
+* He discussed about the sports events held in college. Also, he made us aware of different sports ground in campus.
+* He made us aware of facilities provided in hostel.
+* He also provided us valuable information about different scholarships provided by GOVT.
+
+### 🕤 10:30 AM – 11:30 AM.
+
+### 📢 Dr. Amit Kamara – Digital Marketing Club (DMC)
+
+Dr. Kamara introduced the DMC and its role in GNDEC’s digital presence.  
+Key points:
+- Handles official social media platforms.
+- Hosts competitions in digital marketing and editing.
+- Offers training and potential internship opportunities.
+- Encourages students to submit content like reels/videos.
+- Aims to develop industry-relevant skills.
+
+## 🕦 11:30 AM – 12:30 PM  
+### 📘 Dr. Randhir Singh – Exam Conduct Guidelines
+
+Dr. Singh discussed important academic rules:  
+- Explained subject-wise marks structure.
+- 75% attendance mandatory for all subjects.
+- ₹15,000 fee for re-studying detained subjects.
+- Encouraged discipline and regular study.
+- Shared helpful examination rule.
+
+
 
 
    
